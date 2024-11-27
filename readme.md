@@ -9,4 +9,4 @@ we don't have any public dni and we just kinda. block freely. we don't usually h
 Check out our [rentry](https://rentry.org/emperorgrumbot) too maybe..
 
 
-(iskall , dteam , wilbur soot supporters FUCK OFF!)
+(iskall , dteam , wilbur soot supporters FUCK OFF! samgladiator fans too)
