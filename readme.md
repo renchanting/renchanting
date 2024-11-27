@@ -8,8 +8,6 @@ we freely block people, but we don't typically hide. our dni list is primarily p
 
 Check out our [rentry](https://rentry.org/emperorgrumbot) too maybe..
 
-
 (iskall , dteam , wilbur soot supporters FUCK OFF! samgladiator fans too)
-
 
 Also we do not give a fuck about discourse and would rather have it not mentioned
