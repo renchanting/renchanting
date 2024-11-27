@@ -2,7 +2,7 @@
 
 botani, it/its + rot/rotself pronouns! plural, we have chronic dissociation + amnesia, be patient
 
-use pony name or ask, we don't mind (esp. if "introj" , "fict" or similar in name)
+you can use our skin name but preferably ask about it (esp. if "introj" , "fict" or similar in name)
 
 we don't have any public dni and we just kinda. block freely. we don't usually hide people though
 
