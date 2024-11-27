@@ -4,9 +4,12 @@ botani, it/its + rot/rotself pronouns! plural, we have chronic dissociation + am
 
 you can use our skin name but preferably ask about it (esp. if "introj" , "fict" or similar in name)
 
-we don't have any public dni and we just kinda. block freely. we don't usually hide people though
+we freely block people, but we don't typically hide. our dni list is primarily private!
 
 Check out our [rentry](https://rentry.org/emperorgrumbot) too maybe..
 
 
 (iskall , dteam , wilbur soot supporters FUCK OFF! samgladiator fans too)
+
+
+Also we do not give a fuck about discourse and would rather have it not mentioned
