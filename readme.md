@@ -9,3 +9,6 @@ we're commonly offtab, so please whisper crowns, we're more likely to see them! 
 we don't have any public dni and we just kinda. block freely. we don't usually hide people though
 
 Check out our [rentry](https://rentry.org/emperorgrumbot) too for more stuff (literally just our interests are linked)
+
+
+(iskall , dteam , wilbur soot supporters FUCK OFF!)
