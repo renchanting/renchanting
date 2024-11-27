@@ -2,7 +2,7 @@
 
 botani, it/its + rot/rotself pronouns! plural, introj-heavy.
 
-use skin name or ask, we don't mind. 
+use pony name or ask, we don't mind. (mainly if "introj" or "fict" is in the name)
 
 we're commonly offtab, so please whisper crowns, we're more likely to see them! (we do not usually respond but we appreciate them)
 
