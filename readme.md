@@ -1,5 +1,5 @@
-dream team / wilbur soot / iskall supporters fuck off lol. sam gladiator fans be wary. we don't really like you guys.
+[pluralkit / whos fronting](https://pluralkit.xyz/f/shwhxr) (members are currently private until most of the profiles are finished)
 
-[whos fronting?](https://pluralkit.xyz/f/shwhxr) - ponies with "introj" , "me" , "fict" etc. are alter ponies
+jsdfnsdnfsdjfnkdsj
 
-collectively objectum, we kiss objects :heart: 
+interact w/ caution if you're a fan of dteam, wilbursoot, iskall, or samgladiator. supporters FUCK OFF!!!
