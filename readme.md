@@ -2,4 +2,4 @@
 
 jsdfnsdnfsdjfnkdsj
 
-interact w/ caution if you're a fan of dteam, wilbursoot, iskall, or samgladiator. supporters FUCK OFF!!!
+we don't. like dteam/wilbur/iskall/samgladiator supporters. fans of them are ok i guess, if you support any of them please dni.
