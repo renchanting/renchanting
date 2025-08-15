@@ -12,6 +12,8 @@ feel free to use pony name if it says "me" or "intrj" in it, otherwise use one o
 
 please don't copy our ponies... inspo is ok because we can't rlly stop you. but outright copying will probably result in a blocj LOL
 
+if you actually read everything here then Thanks!!! we don't have a collective atabook but [martyn has one](https://inthelittlewood.atabook.org/)! feel free 2 sign it :)
+
 ---
 
 before you int/friend (basically a copy paste of martyns. but most of it applies to us overall)
@@ -37,7 +39,7 @@ quick dni list but terribly condensed because we just do stuff freely
 ---
 
 aand a iwc list w/ short explanations. Starred ones may get moved to dni in the future!
-- skizz fans (recent situations) ★
+- skizz fans (recent situations; MAGA mods/friends for the main part) ★
 - doc fans (we just don't like him tbh)
 - samgladiator fans (uhhh I Forgor) (There's stuff abt him we just. don't have links on hand rn SORRY!!)
 - flower husband (jim/scott) shippers (perosnal experiences with fans, stuff w/ friend)
