@@ -49,9 +49,3 @@ aand a iwc list w/ short explanations. Starred ones may get moved to dni in the 
 - overall if you hate any of our interests idk man
 
 (note for above: aside from object shows. we understand this) (we're not into object shows anymore we just have a bunch of object ocs)
-
----
-
-more will be added here eventually! here's places you can find us / find info at! we also have a few linked on the side.
-
-[main twitter](https://twitter.com/gridawg) ★ [priv twitter (active)](https://twitter.com/ratchanting) ★ [tumblr](https://gridawg.tumblr.com) ★ [toyhou.se](https://toyhou.se/gridawg) ★ [system prns.cc](https//pronouns.cc/@botani) ★ friends/mutuals can ask for discord & simply plural!
