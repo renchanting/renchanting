@@ -18,7 +18,7 @@ if you actually read everything here then Thanks!!! we don't have a collective a
 
 before you int/friend (basically a copy paste of martyns. but most of it applies to us overall)
 - we are almost always ok with people interacting!!! unless we have any variant of dni in our name. don't go off our status (we don't usually change it from busy/away)
-- we are terribly anxious with new people and take a bit to warm up! otherwise we are like. puppy level of excited. we love talking about our interests and just stuff in general!!!
+- we are terribly anxious with new people and take a bit to warm up! otherwise we are like. puppy level of excited. we love talking about our interests and just stuff in general!!! (this will definitely vary on whos fronting and our mood at the moment)
 - we prefer party chat/whispers instead of public chat, but we aren't agianst using it! just more comfortable.
 - we absoltuely suck at typing & we type fast. if this makes it hard to read (or  is just annoying) please tell us!!! can't confirm we'll stop typing fast but we'll try to fix any spelling errors.
 - we're often offtab, just whisper if you want our attention! will say it may take a few minutes.
