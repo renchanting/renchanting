@@ -10,7 +10,7 @@ we usually have this acc linked to our ponies if someone other than martyn is fr
 
 feel free to use pony name if it says "me" or "intrj" in it, otherwise use one of the ones mentioned at the top! or ask.
 
-please don't copy our ponies... inspo is ok because we can't rlly stop you. but outright copying will probably result in a blocj LOL
+please don't directly copy our ponies! inspo is okay as we can't really stop you, you don't need to ask about it either. :-) (copying will most LIKELY end up w/ us hiding you)
 
 if you actually read everything here then Thanks!!! we don't have a collective atabook but [martyn has one](https://inthelittlewood.atabook.org/)! feel free 2 sign it :)
 
@@ -25,7 +25,7 @@ before you int/friend (basically a copy paste of martyns. but most of it applies
 - crowns are always appreciated!! we may not always respond bc of various reasons but we appreciate them all :-)
 - please don't send random friend requests, we won't accept them. if we've talked before then don't worry about this!!
 - we shouldn't have to say this but PLEASE treat any and all of our alters (specificially introjects) as their own people. friends r allowed to joke around as long as We know about it! but preferably check w/ us beforehand.
-- we block (/mute) fairly freely. we're just extremely petty & do it for random reasons a good amount of the time. we don't hide ppl tho!
+- we block (/mute) fairly freely. we're just extremely petty & do it for random reasons a good amount of the time. we don't usually hide people!
 
 ---
 
