@@ -8,6 +8,8 @@ rot/it/ae pronouns, and we vuse i/we interchangably. we're bodily white & *very*
 
 we usually have this acc linked to our ponies if someone other than martyn is fronting (@inthelittiewood)!
 
+(we sometimes have an indicator for the above aside from this github! most of the time if theres an emoji at the start of a ponies name its most liekly someone else. for the time being, if theres a 🌹 then refer to [this rentry](https://rentry.co/pityspreacher)! it's karins.)
+
 feel free to use pony name if it says "me" or "intrj" in it, otherwise use one of the ones mentioned at the top! or ask.
 
 please don't directly copy our ponies! inspo is okay as we can't really stop you, you don't need to ask about it either. :-) (copying will most LIKELY end up w/ us hiding you)
