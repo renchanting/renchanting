@@ -6,7 +6,7 @@ rot/it/ae pronouns, and we vuse i/we interchangably. we're bodily white & *very*
 
 (we're using only we/us/etc here for consistency. we'll probably default to i/me otherwise)
 
-we usually have this acc linked to our ponies if someone other than martyn is fronting (@inthelittiewood)!
+we usually have this acc linked to our ponies if someone other than martyn is fronting (@inthelittiewood)! we also have @thesunlandictwins for other alters (if they have info there)
 
 feel free to use pony name if it says "me" or "intrj" in it, otherwise use one of the ones mentioned at the top! or ask.
 
