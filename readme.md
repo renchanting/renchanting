@@ -26,6 +26,7 @@ before you int/friend (basically a copy paste of martyns. but most of it applies
 - please don't send random friend requests, we won't accept them. if we've talked before then don't worry about this!!
 - we shouldn't have to say this but PLEASE treat any and all of our alters (specificially introjects) as their own people. friends r allowed to joke around as long as We know about it! but preferably check w/ us beforehand.
 - we block (/mute) fairly freely. we're just extremely petty & do it for random reasons a good amount of the time. we don't usually hide people!
+- we almost always try to read any and all info we can find if you have something linked to a pony!! we just like learnign about people :-) so sorry if we're quiet for a bit
 
 ---
 
