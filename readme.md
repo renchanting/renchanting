@@ -40,7 +40,7 @@ quick dni list but terribly condensed because we just do stuff freely
 ---
 
 aand a iwc list w/ short explanations. Starred ones may get moved to dni in the future!
-- skizz fans (recent situations; MAGA mods/friends for the main part) ★
+- skizz fans (we have seen his response, this'll be removed/enforced depending on our final opinions)
 - doc fans (we just don't like him tbh)
 - samgladiator fans (uhhh I Forgor) (There's stuff abt him we just. don't have links on hand rn SORRY!!)
 - flower husband (jim/scott) shippers (perosnal experiences with fans, stuff w/ friend)
