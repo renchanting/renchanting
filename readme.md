@@ -14,7 +14,7 @@ if you actually read everything here then Thanks!!! we don't have a collective a
 
 ---
 
-before you int/friend (basically a copy paste of martyns. but most of it applies to us overall)
+before you int/friend
 - we are almost always ok with people interacting!!! unless we have any variant of dni in our name. don't go off our status (we don't usually change it from busy/away)
 - we are terribly anxious with new people and take a bit to warm up! otherwise we are like. puppy level of excited. we love talking about our interests and just stuff in general!!! (this will definitely vary on whos fronting and our mood at the moment)
 - we prefer party chat/whispers instead of public chat, but we aren't agianst using it! just more comfortable.
@@ -37,7 +37,7 @@ quick dni list but terribly condensed because we just do stuff freely
 
 ---
 
-aand a iwc list w/ short explanations. Starred ones may get moved to dni in the future!
+aand a iwc list w/ short explanations
 - skizz fans (we have seen his response, this'll be removed/enforced depending on our final opinions)
 - doc fans (we just don't like him tbh)
 - samgladiator fans (uhhh I Forgor) (There's stuff abt him we just. don't have links on hand rn SORRY!!)
