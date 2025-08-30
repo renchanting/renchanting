@@ -1,15 +1,11 @@
 ![gridog](https://64.media.tumblr.com/e5dafccec86e70ad6ba2386a1f42719a/687edce6564b89ef-ee/s250x400/142bbc83dded7bcc94543e8b55efa53b8f1eb532.png)
 
-hi, we're aster! otherwise known as soleil / botani! (sol is also okay!) polyfragmented-introject heavy system with many other issues.
-
-rot/it/ae pronouns, and we vuse i/we interchangably. we're bodily white & *very* much disabled. age is n/a on account of We're Ant.
-
+hi, we're aster! otherwise known as soleil / botani! (sol is also okay!) polyfragmented-introject heavy system with many other issues. <br>
+rot/it/ae pronouns, and we vuse i/we interchangably. we're bodily white & *very* much disabled. age is n/a on account of We're Ant. <br>
 (we're using only we/us/etc here for consistency. we'll probably default to i/me otherwise)
 
-feel free to use pony name if it says "me" or "intrj" in it, otherwise use one of the ones mentioned at the top! or ask.
-
-please don't directly copy our ponies! inspo is okay as we can't really stop you, you don't need to ask about it either. :-) (copying will most LIKELY end up w/ us hiding you)
-
+feel free to use pony name if it says "me" or "intrj" in it, otherwise use one of the ones mentioned at the top! or ask. <br>
+please don't directly copy our ponies! inspo is okay as we can't really stop you, you don't need to ask about it either. :-) (copying will most LIKELY end up w/ us hiding you) <br>
 if you actually read everything here then Thanks!!! we don't have a collective atabook but [martyn has one](https://inthelittlewood.atabook.org/)! feel free 2 sign it :)
 
 ---
