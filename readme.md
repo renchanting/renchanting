@@ -5,3 +5,5 @@ and wikipe-tan shes cool :-)
 
 hardcore scarian & ddvau fans PLEASE iwc (unless you're a friend) </br>
 also try to keep mentions of either at a minimum when talking w/ us
+
+our atabook! https://inthelittlewood.atabook.org/ (it's technically neils but we use it collectively)
