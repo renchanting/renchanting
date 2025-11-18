@@ -1,6 +1,9 @@
 ![the twins](https://64.media.tumblr.com/c00b38c95cc7b016c7dc44615785b40c/8fb53701c57377e6-db/s100x200/a14f73431cdf46e9870d5d4592622c3b222a5eaa.png)
 
-big fan of biology, mcyt, terraria, and of montreal </br>
+currently ill over terraria. often offtab just reading rhe wiki. ok? i love the mechs </br>
+also big into: mcyt, biology, of montreal, party crashers! and others but these are the main ones
 
-hardcore scarian & ddvau fans PLEASE iwc (unless you're a friend) </br>
-also try to keep mentions of either at a minimum when talking w/ us
+we might come off as a bit too much, zpleaaase tell us if we do!!! we try not to be too annoying </br>
+preferred if people whisper to talk to us! just because we're offtab/away often.
+
+to greenies (/friends): feel free 2 ask for our discord... we aren't really active on ponytown!!!.
