@@ -7,4 +7,5 @@ sorry if we come off as much. we've got 10000 disorders probably. feel free to b
 whisper/party chat is preferred, though we're ok conversing in public chat if needed . thumbs up!
 
 greenies/friends: feel free to ask for our discord :-) we are not that responsive but we're much more active there </br>
-we are TERRIBLE with new people by the way pleaaase be wary of that... we're trying our best okay?
+we are TERRIBLE with new people by the way pleaaase be wary of that... we're trying our best okay? </br>
+also: we won't accept random frqs PLEASE don't send them randomly if we haven't talked...
