@@ -1,11 +1,10 @@
 ![the twins](https://64.media.tumblr.com/c00b38c95cc7b016c7dc44615785b40c/8fb53701c57377e6-db/s100x200/a14f73431cdf46e9870d5d4592622c3b222a5eaa.png)
 
-currently ill over terraria, i love the mechs yaaay !!!! the mechs are our faves if you cant tell </br>
-also big into: mcyt, biology, of montreal, party crashers! and others but these are the main ones
+hi we're aster aka botani or soleil. call us whatever really. rot/rots + it/it + ae/aer pronounce </br>
+we're currently into: mewgenics, terraria, dragonvale, mcyt. also of montreal
 
-we might come off as a bit too much, zpleaaase tell us if we do!!! we try not to be too annoying </br>
-preferred if people whisper to talk to us! just because we're offtab/away often. also our chat is off a lot
+sorry if we come off as much. we've got 10000 disorders probably. feel free to bap us if we're getting annoying </br>
+whisper/party chat is preferred, though we're ok conversing in public chat if needed . thumbs up!
 
-to greenies (/friends): feel free 2 ask for our discord... we aren't really active on ponytown!!!.
-
-(we don't do well with new people, and we might seem dry or similar. we'll warm up eventualy do not worry)
+greenies/friends: feel free to ask for our discord :-) we are not that responsive but we're much more active there </br>
+we are TERRIBLE with new people by the way pleaaase be wary of that... we're trying our best okay?
