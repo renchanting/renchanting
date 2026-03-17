@@ -9,3 +9,6 @@ whisper/party chat is preferred, though we're ok conversing in public chat if ne
 greenies/friends: feel free to ask for our discord :-) we are not that responsive but we're much more active there </br>
 we are TERRIBLE with new people by the way pleaaase be wary of that... we're trying our best okay? </br>
 also: we won't accept random frqs PLEASE don't send them randomly if we haven't talked...
+
+also: preferred if people who are proshippers do not try to be friends! you can interact n stuff but i won't accept frqs, sorry </br>
+^ this is for personal reasons, if you bitch about it i will Not Be Nice. sorry!
