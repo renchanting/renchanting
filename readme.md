@@ -11,5 +11,6 @@ greenies/friends: feel free to ask for our discord :-) we are not that responsiv
 we are TERRIBLE with new people by the way pleaaase be wary of that... we're trying our best okay? </br>
 btw we won't accept random frqs PLEASE don't send them randomly if we haven't talked...
 
-also: preferred if people who are proshippers do not try to be friends! you can interact n stuff but i won't accept frqs, sorry </br>
-^ this is for personal reasons, if you bitch about it i will Not Be Nice. sorry!
+also some extra stuffs (mostly just stuff 2 know before interacting): </br>
+proshippers can interact, but pleaase don't expect us to want to be friends. we'll respect you if you respect us. </br>
+we'll add more here #Later lol
