@@ -1,4 +1,4 @@
-![the twins](https://64.media.tumblr.com/c00b38c95cc7b016c7dc44615785b40c/8fb53701c57377e6-db/s100x200/a14f73431cdf46e9870d5d4592622c3b222a5eaa.png)
+![this user is objectum](https://64.media.tumblr.com/5d6e3e012eb72db34e6df236553e095d/cf696f2fbb79bb15-21/s1280x1920/270995766dca653fab872d8bc50df1825818f878.png)
 
 hi we're aster aka botani or soleil. call us whatever really. rot/rots + it/it + ae/aer pronounce </br>
 we're currently into: mewgenics, terraria, dragonvale, mcyt. big biology fan (specifically genetics) & we love of montreal </br>
