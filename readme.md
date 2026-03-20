@@ -5,7 +5,8 @@ we're currently into: mewgenics, terraria, dragonvale, mcyt. big biology fan (sp
 if you wanna see more of our interests check [this repository](https://github.com/renchanting/asters-interests)
 
 sorry if we come off as much. we've got 10000 disorders probably. feel free to bap us if we're getting annoying </br>
-whisper/party chat is preferred, though we're ok conversing in public chat if needed . thumbs up!
+whisper/party chat is preferred, though we're ok conversing in public chat if needed . thumbs up! </br>
+mewgenics fans please talk to us we're normal we promise. we enjoy the cat eugenics game a normal amount
 
 greenies/friends: feel free to ask for our discord :-) we are not that responsive but we're much more active there </br>
 we are TERRIBLE with new people by the way pleaaase be wary of that... we're trying our best okay? </br>
