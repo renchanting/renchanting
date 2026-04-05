@@ -14,4 +14,6 @@ btw we won't accept random frqs PLEASE don't send them randomly if we haven't ta
 
 also some extra stuffs (mostly just stuff 2 know before interacting): </br>
 proshippers can interact, but pleaase don't expect us to want to be friends. we'll respect you if you respect us. </br>
-we'll add more here #Later lol
+we don't care if people take inspiration from our ponies! do whatever u want. though preferably no **heavy** inspiration </br>
+we play a pirated version of tboi wrath of the lamb on our school chromebook and cant even get to mom without it breaking </br>
+that isn't important i just wanted it to be known. we are worlds worst isaac player
