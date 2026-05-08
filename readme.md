@@ -1,19 +1,18 @@
-![this user is objectum](https://64.media.tumblr.com/5d6e3e012eb72db34e6df236553e095d/cf696f2fbb79bb15-21/s1280x1920/270995766dca653fab872d8bc50df1825818f878.png)
+![dragonvale](https://64.media.tumblr.com/fa2525548ca17108ce44d250d1e630c8/37a72110517bbd13-49/s1280x1920/1536dcb24cd9016340a618a0885a8e787e51c13c.gif) ![binding of isaac](https://64.media.tumblr.com/66058661dff1e3226123ac59de9868a2/1cea2f6412070e8b-b4/s1280x1920/427f3a3ff571ccf32f4ac596c4aa3cc2065295b6.gif) ![hermitcraft](https://64.media.tumblr.com/2b5089b1406094619c03a4c6b3653ddb/37a72110517bbd13-b8/s1280x1920/28b3692a4bc0e171b2f5166f3758e68eea07ebd5.gif)
 
-hi we're aster aka botani or soleil. call us whatever really. rot/rots + it/it + ae/aer pronounce </br>
-we're currently into: mewgenics, terraria, dragonvale, mcyt. big biology fan (specifically genetics) & we love of montreal </br>
-if you wanna see more of our interests check [this repository](https://github.com/renchanting/asters-interests)
+hi, i'm aster. aka soleil or botani! rot/rots, it/its & ae/aer pronounce :-) </br>
+girl in the way worker bugs are girls. i'm also not a girl at all so take that as you wish </br>
+disabled And very much ill. Autistic system. prone to various things Be nice okay?
 
-sorry if we come off as much. we've got 10000 disorders probably. feel free to bap us if we're getting annoying </br>
-whisper/party chat is preferred, though we're ok conversing in public chat if needed . thumbs up! </br>
-mewgenics fans please talk to us we're normal we promise. we enjoy the cat eugenics game a normal amount
+currently into: **the binding of isaac**, **dragonvale**, mewgenics, terraria, mcyt </br>
+big fan of biology! shout out genetics & speculative biology. also of montreal & bo en </br>
+if you wanna see a (mostly accurate) list of everything i like look [here](https://github.com/renchanting/asters-interests). idk mayn
 
-greenies/friends: feel free to ask for our discord :-) we are not that responsive but we're much more active there </br>
-we are TERRIBLE with new people by the way pleaaase be wary of that... we're trying our best okay? </br>
-btw we won't accept random frqs PLEASE don't send them randomly if we haven't talked...
+for green names/friends: Feel free to ask for my discord!! or steam or really anything. </br>
+i'm not the best w/ new people! but i promise i will probably warm up quickly. </br>
+preferred that people whisper if they'd like to chat... more likely for me to notice
 
-also some extra stuffs (mostly just stuff 2 know before interacting): </br>
-proshippers can interact, but pleaase don't expect us to want to be friends. we'll respect you if you respect us. </br>
-we don't care if people take inspiration from our ponies! do whatever u want. though preferably no **heavy** inspiration </br>
-we finally bought tboi rebirth and we've beaten mom. don't kill us anymore please? </br>
-that last one isn't important but we wanted to update. we are still gonna play the original on our school chromebook for fun
+extra things: </br>
+proshippers can interact but i'd rather not be friends. if you respect me i'll respect you </br>
+pony inspiration is ok! just no heavy inspiration or straight up copying please. thanks </br>
+uhhhhhh I dunno what else to say... hi...... :p 
