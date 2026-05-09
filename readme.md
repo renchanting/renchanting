@@ -2,7 +2,7 @@
 
 hi, i'm aster. aka soleil or botani! rot/rots, it/its & ae/aer pronounce :-) </br>
 girl in the way worker bugs are girls. i'm also not a girl at all so take that as you wish </br>
-disabled And very much ill. Autistic system. prone to various things Be nice okay?
+disabled And very much ill. Autistic system. prone to lots of stuff. don't ask for specifics
 
 currently into: **the binding of isaac**, **dragonvale**, mewgenics, terraria, mcyt </br>
 big fan of biology! shout out genetics & speculative biology. also of montreal & bo en </br>
