@@ -15,5 +15,6 @@ friends/green names can also ask for my discord or steam! note i'm a bit more pi
 
 i don't really have a "do not interact" list i can Enforce but please know: </br>
 - i don't want to be friends with proshippers. they may interact But please don't try to be all buddy-buddy
+- radqueer/transid/pro (harmful) paras Also leave me alone. and also queer exclusionists
 - i don't want people who support dream (+ dream team) or wilbur soot interacting at all
 - i'll add to this as i think of stuff... i don't know...
