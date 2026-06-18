@@ -13,8 +13,7 @@ sorry if i come off as dry or too much or something at first, i am Very awkward 
 i typically won't accept random friend requests UNLESS you're from somewhere else (ex. twitter/tumblr mutuals) or we've talked before </br>
 friends/green names can also ask for my discord or steam! note i'm a bit more picky with steam friends for personal stuff
 
-i don't really have a "do not interact" list i can Enforce but please know: </br>
-- i don't want to be friends with proshippers. they may interact But please don't try to be all buddy-buddy
-- radqueer/transid/pro (harmful) paras Also leave me alone. and also queer exclusionists
-- i don't want people who support dream (+ dream team) or wilbur soot interacting at all
-- i'll add to this as i think of stuff... i don't know...
+uhhhhhhhh. i don't really have a dni list But if i don't like you it will probably be obvious. </br>
+that being said. i Would rather not be friends with people who label themselves "proship" or anything similar </br>
+same goes w/ people who like hazbin hotel or helluva boss. for my own comfort pleaase don't try to be my friend </br>
+( ^ when i say this i mean like, people who Really Like either series. if you're a casual fan thats fine just don't bring it up around me)
