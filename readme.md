@@ -1,19 +1,21 @@
-![dragonvale](https://64.media.tumblr.com/fa2525548ca17108ce44d250d1e630c8/37a72110517bbd13-49/s1280x1920/1536dcb24cd9016340a618a0885a8e787e51c13c.gif) ![binding of isaac](https://64.media.tumblr.com/66058661dff1e3226123ac59de9868a2/1cea2f6412070e8b-b4/s1280x1920/427f3a3ff571ccf32f4ac596c4aa3cc2065295b6.gif) ![hermitcraft](https://64.media.tumblr.com/2b5089b1406094619c03a4c6b3653ddb/37a72110517bbd13-b8/s1280x1920/28b3692a4bc0e171b2f5166f3758e68eea07ebd5.gif)
+<p align=center> <img src="https://64.media.tumblr.com/3ba9eb87ebb2555dd9434ce1be4ab19b/92c6dc0f7667c916-0f/s1280x1920/27e04febb4d2386029a5b7a4751e6201dd709639.gif"> </p>
 
-hi, i'm aster. otherwise known as cain or sol! rot/rots, it/its, ae/aer pronouns (in order of preference) </br>
-disabled, queer, trans, all that stuff. also i'm autistic & a system. won't go into more details </br>
-white & usamerican. i know english and am currently learning german :-) i do suck at it tho
+hi, i'm cain or aster. or really whatever you want to call me. rot/it pronouns, ae/aer okay. no they/them. </br>
+disabled queer thing. i have 500 illnesses probably. autistic & a system, no further details unless i trust you </br>
+white & (us)american, i know english and am learning german. that's cool i guess
 
-i'm currently into a handful of things, but the primary things are: </br>
-**the binding of isaac**, **(speculative) biology**, **of montreal**, dragonvale, terraria, and minecraft youtubers </br>
-i do like many other things, most should be listed [here](https://github.com/renchanting/asters-interests)! i try to update it every now and then
+i like lots of stuff but my main interests as of right now are: </br>
+**edmund mcmillen games**, **biology**, **of montreal**, dragonvale, terraria & minecraft youutubers </br>
+for the first one: primarily isaac (obviously) & aether, but i like most of his stuff. i hate time fcuk tho (lying)
 
-i am Not that active on ponytown and am usually offtab whenever i'm online! please whisper if you want to talk </br>
-sorry if i come off as dry or too much or something at first, i am Very awkward with new people but i'll try to warm up ^.^ </br>
-i typically won't accept random friend requests UNLESS you're from somewhere else (ex. twitter/tumblr mutuals) or we've talked before </br>
-friends/green names can also ask for my discord or steam! note i'm a bit more picky with steam friends for personal stuff
+i am not the most social person, but i enjoy conversing sometimes... sorry if i come off as too much sometimes </br>
+i'm also not really active on ponytown, friends can ask for my discord if they want! </br>
+please whisper me if you want my attention, i'm often offtab or doing shit away from my laptop...
 
-uhhhhhhhh. i don't really have a dni list But if i don't like you it will probably be obvious. </br>
-that being said. i Would rather not be friends with people who label themselves "proship" or anything similar </br>
-same goes w/ people who like hazbin hotel or helluva boss. for my own comfort pleaase don't try to be my friend </br>
-( ^ when i say this i mean like, people who Really Like either series. if you're a casual fan thats fine just don't bring it up around me)
+i don't really have a DNI list i can Enforce, but i would rather not be friends with: </br>
+proshippers, queer exclus, radqueers. you may Interact but don't try to be my friend. </br>
+
+also if i don't have this account linked to a pony i will usually have [@mewgenics](https://github.com/mewgenics) or [@isaac-moriah](https://github.com/isaac-moriah) linked. </br>
+they are both my accounts, i just use em for ponies related to their users (...mewgenics & tboi respectively)
+
+<p align=center> <img src="https://64.media.tumblr.com/4ab775d64c6f8ab3a0c1d34e9c262841/37a72110517bbd13-26/s1280x1920/1849037e42f1f60acc5b263d2b6232fe9f2c6778.gif"> <img src="https://64.media.tumblr.com/e8c3fcb9c9d005fe3108d3107774da55/82f062ad64b65975-48/s100x200/8d15b71d0efccbafc99390167e088b000e630afb.png"> <img src="https://64.media.tumblr.com/4ff0c91b78ea6a9abfa1217f82b28e4b/f6267abf5c19e1a6-cd/s100x200/b4fd6dbed8d137a46828b894b21c69aeec4d192d.gif"> </p>
