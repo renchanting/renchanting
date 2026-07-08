@@ -16,6 +16,7 @@ i don't really have a DNI list i can Enforce, but i would rather not be friends 
 proshippers, queer exclus, radqueers. you may Interact but don't try to be my friend. </br>
 
 also if i don't have this account linked to a pony i will usually have [@mewgenics](https://github.com/mewgenics) or [@isaac-moriah](https://github.com/isaac-moriah) linked. </br>
-they are both my accounts, i just use em for ponies related to their users (...mewgenics & tboi respectively)
+they are both my accounts, i just use em for ponies related to their users (...mewgenics & tboi respectively) </br>
+pony inspo ok, no heavy inspo or straight up copying tho
 
 <p align=center> <img src="https://64.media.tumblr.com/4ab775d64c6f8ab3a0c1d34e9c262841/37a72110517bbd13-26/s1280x1920/1849037e42f1f60acc5b263d2b6232fe9f2c6778.gif"> <img src="https://64.media.tumblr.com/e8c3fcb9c9d005fe3108d3107774da55/82f062ad64b65975-48/s100x200/8d15b71d0efccbafc99390167e088b000e630afb.png"> <img src="https://64.media.tumblr.com/4ff0c91b78ea6a9abfa1217f82b28e4b/f6267abf5c19e1a6-cd/s100x200/b4fd6dbed8d137a46828b894b21c69aeec4d192d.gif"> </p>
