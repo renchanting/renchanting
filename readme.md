@@ -1,6 +1,6 @@
 <p align=center> <img src="https://64.media.tumblr.com/3ba9eb87ebb2555dd9434ce1be4ab19b/92c6dc0f7667c916-0f/s1280x1920/27e04febb4d2386029a5b7a4751e6201dd709639.gif"> </p>
 
-hi, i'm cain or aster. or really whatever you want to call me. rot/it pronouns, ae/aer okay. no they/them. </br>
+hi, i'm cain or ventricide(/ven). or really whatever you want to call me. rot/it pronouns, ae/aer okay. no they/them. </br>
 disabled queer thing. i have 500 illnesses probably. autistic & a system, no further details unless i trust you </br>
 white & (us)american, i know english and am learning german. that's cool i guess
 
