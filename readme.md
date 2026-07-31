@@ -14,6 +14,7 @@ please whisper me if you want my attention, i'm often offtab or doing shit away 
 
 i don't really have a DNI list i can Enforce, but i would rather not be friends with: </br>
 proshippers, queer exclus, radqueers. you may Interact but don't try to be my friend. </br>
+also if you're a fan of any of these please iwc: dandys world, hazbin/helluva, genshin </br>
 
 also if i don't have this account linked to a pony i will usually have [@mewgenics](https://github.com/mewgenics) or [@isaac-moriah](https://github.com/isaac-moriah) linked. </br>
 they are both my accounts, i just use em for ponies related to their users (...mewgenics & tboi respectively) </br>
