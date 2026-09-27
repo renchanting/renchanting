@@ -1,23 +1,24 @@
-<p align=center> <img src="https://64.media.tumblr.com/3ba9eb87ebb2555dd9434ce1be4ab19b/92c6dc0f7667c916-0f/s1280x1920/27e04febb4d2386029a5b7a4751e6201dd709639.gif"> </p>
+<p align="center"> <img src="https://64.media.tumblr.com/a4fb4c165deca0c87318e4f7b542de2e/dfeb34fb3eabffc2-27/s250x400/dcb03eecc8a04068845746774319ff663aca2240.gif" width="100"> </p>
 
-hi, i'm cain or ventricide(/ven). or really whatever you want to call me. rot/it pronouns, ae/aer okay. no they/them. </br>
-disabled vampiric angel thing. also i'm mentally ill, autistic, and a system. no further details unless we're close </br>
-bodily white + (us)american. i know english & am learning german ^.^
+hi, i'm cain. otherwise known as wrath/ventricide. rot/rots or it/its, **no they/them**. queer, objectum, aroace girl-ish thing. <br>
+weird disabled vampiric angel. also a riverclan medicine-cat. autistic system + mentally ill. be considerate. </br>
+bodily white & (us)american. eng only (learning deu! just not good enough to hold conversations, ok? eueue)
 
-i like lots of stuff but my main interests as of right now are: </br>
-**edmund mcmillen games**, **biology**, **of montreal**, dragonvale, terraria & minecraft youutubers </br>
-for the first one: primarily isaac (obviously) & aether, but i like most of his stuff. i hate time fcuk tho (lying)
+mostly into: biology/genetics, of montreal, binding of isaac (+ other edmund games) </br>
+i like a lot of other stuff you can find [here [link]](https://github.com/renchanting/asters-interests) but the above are the main things. </br>
+(for ed games: aether & isaac mostly, but i like a handful of others. bumbo <3)
 
-i am not the most social person, but i enjoy conversing sometimes... sorry if i come off as too much sometimes </br>
-i'm also not really active on ponytown, friends can ask for my discord if they want! </br>
-please whisper me if you want my attention, i'm often offtab or doing shit away from my laptop...
+i'm not a very social person, please know this before trying to talk to me. i **will** come off as weird, probably. </br>
+friends may ask me for my discord! i am much more active there than ponytown. i don't talk first much tho </br>
+please whisper if you want my attention! i don't accept random friend reqs unless i know you somewhere else.
 
-i don't really have a DNI list i can Enforce, but i would rather not be friends with: </br>
-proshippers, queer exclus, radqueers. you may Interact but don't try to be my friend. </br>
-also if you're a fan of any of these please iwc: dandys world, hazbin/helluva, genshin </br>
+no real dni because i can't enforce it, but note i don't want to be friends with you if you are a: </br>
+proshipper, queer exclus, radqueer ("transid"), pro-para (**harmful** ones). interactions ok but please limit them. </br>
+also fans of these **please int. with caution**: dandys world, hazbin/helluva, genshin, dream smp
 
-also if i don't have this account linked to a pony i will usually have [@mewgenics](https://github.com/mewgenics) or [@isaac-moriah](https://github.com/isaac-moriah) linked. </br>
-they are both my accounts, i just use em for ponies related to their users (...mewgenics & tboi respectively) </br>
-pony inspo ok, no heavy inspo or straight up copying tho
+i often have my other accounts linked to my ponies, these being [@mewgenics](https://github.com/mewgenics) or [@isaac-moriah](https://github.com/isaac-moriah). </br>
+you will never guess what ponies i usually have them on (my mewge/isaac ponies respectively) </br>
+pony inspiration is okay! just please don't straight up copy them... i don't like it. ok? thanks
 
-<p align=center> <img src="https://64.media.tumblr.com/4ab775d64c6f8ab3a0c1d34e9c262841/37a72110517bbd13-26/s1280x1920/1849037e42f1f60acc5b263d2b6232fe9f2c6778.gif"> <img src="https://64.media.tumblr.com/e8c3fcb9c9d005fe3108d3107774da55/82f062ad64b65975-48/s100x200/8d15b71d0efccbafc99390167e088b000e630afb.png"> <img src="https://64.media.tumblr.com/4ff0c91b78ea6a9abfa1217f82b28e4b/f6267abf5c19e1a6-cd/s100x200/b4fd6dbed8d137a46828b894b21c69aeec4d192d.gif"> </p>
+<p align="center"> links go here soon i need to work on the repositories </p>
+<p align="center"> <img src="https://64.media.tumblr.com/37b9300bf0786538ad8f2842089e6cdf/d83a7de606c7f5f9-47/s1280x1920/5d83ae7288d0067956db30f416eda73cd424bb64.png"> <img src="https://64.media.tumblr.com/79bee4f0217d18961615f8a5be8946a5/d4b7ddb697031c86-51/s1280x1920/cef9b912bbfda225c3883e0957bb36d4696a8bd1.png"> <img src="https://64.media.tumblr.com/10c87fa441ba36d0d954c48f49dc2587/2392e7c1f6f7c3e5-9c/s1280x1920/639d105a3233c692ce61c47dc6e218c6727c23cb.gif"> </p>
