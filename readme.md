@@ -15,7 +15,7 @@ please whisper if you want my attention! i don't accept random friend reqs unles
 
 no real dni because i can't enforce it, but note i don't want to be friends with you if you are a: </br>
 proshipper, queer exclus, radqueer ("transid"), pro-para (**harmful** ones). interactions ok but please limit them. </br>
-fans of these **please int. with caution**: roblox in general, hazbin/helluva, genshin, dream smp
+also if your main interest/fandom is any of these please iwc: dandys world, genshin, helluva/hazbin, dream smp
 
 i often have my other accounts linked to my ponies, these being [@mewgenics](https://github.com/mewgenics) or [@isaac-moriah](https://github.com/isaac-moriah). </br>
 you will never guess what ponies i usually have them on (my mewge/isaac ponies respectively) </br>
