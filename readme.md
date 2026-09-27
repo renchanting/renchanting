@@ -2,7 +2,8 @@
 
 hi, i'm cain. otherwise known as wrath/ventricide. rot/rots or it/its, **no they/them**. queer, objectum, aroace girl-ish thing. <br>
 weird disabled vampiric angel. also a riverclan medicine-cat. autistic system + mentally ill. be considerate. </br>
-bodily white & (us)american. eng only (learning deu! just not good enough to hold conversations, ok? eueue)
+bodily white & (us)american. eng only (learning deu! just not good enough to hold conversations, ok? eueue) </br>
+if a pony has "intrj" or the likes (fict/fct, introj, etc) then pony name is fine (ask if wanted).
 
 mostly into: biology/genetics, of montreal, binding of isaac (+ other edmund games) </br>
 i like a lot of other stuff you can find [here [link]](https://github.com/renchanting/asters-interests) but the above are the main things. </br>
@@ -14,7 +15,7 @@ please whisper if you want my attention! i don't accept random friend reqs unles
 
 no real dni because i can't enforce it, but note i don't want to be friends with you if you are a: </br>
 proshipper, queer exclus, radqueer ("transid"), pro-para (**harmful** ones). interactions ok but please limit them. </br>
-also fans of these **please int. with caution**: dandys world, hazbin/helluva, genshin, dream smp
+fans of these **please int. with caution**: roblox in general, hazbin/helluva, genshin, dream smp
 
 i often have my other accounts linked to my ponies, these being [@mewgenics](https://github.com/mewgenics) or [@isaac-moriah](https://github.com/isaac-moriah). </br>
 you will never guess what ponies i usually have them on (my mewge/isaac ponies respectively) </br>
