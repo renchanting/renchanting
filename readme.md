@@ -17,7 +17,7 @@ no real dni because i can't enforce it, but note i don't want to be friends with
 proshipper, queer exclus, radqueer ("transid"), pro-para (**harmful** ones). interactions ok but please limit them. </br>
 also if your main interest/fandom is any of these please iwc: dandys world, genshin, helluva/hazbin, dream smp
 
-i often have my other accounts linked to my ponies, these being [@mewgenics](https://github.com/mewgenics) or [@isaac-moriah](https://github.com/isaac-moriah). </br>
+i usually have my other accounts linked to my ponies, these being [@mewgenics](https://github.com/mewgenics) or [@isaac-moriah](https://github.com/isaac-moriah). </br>
 you will never guess what ponies i usually have them on (my mewge/isaac ponies respectively) </br>
 pony inspiration is okay! just please don't straight up copy them... i don't like it. ok? thanks
 
