@@ -2,8 +2,7 @@
 
 hi, i'm cain. otherwise known as wrath/ventricide. rot/rots or it/its, **no they/them**. queer, objectum, aroace girl-ish thing. <br>
 weird disabled vampiric angel. also a riverclan medicine-cat. autistic system + mentally ill. be considerate. </br>
-bodily white & (us)american. eng only (learning deu! just not good enough to hold conversations, ok? eueue) </br>
-if a pony has "intrj" or the likes (fict/fct, introj, etc) then pony name is fine (ask if wanted).
+bodily white & (us)american. eng only (learning deu! just not good enough to hold conversations, ok?)
 
 mostly into: biology/genetics, of montreal, binding of isaac (+ other edmund games) </br>
 i like a lot of other stuff you can find [here [link]](https://github.com/renchanting/asters-interests) but the above are the main things. </br>
