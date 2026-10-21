@@ -12,10 +12,6 @@ i'm not a very social person, please know this before trying to talk to me. i **
 friends may ask me for my discord! i am much more active there than ponytown. i don't talk first much tho </br>
 please whisper if you want my attention! i don't accept random friend reqs unless i know you somewhere else.
 
-no real dni because i can't enforce it, but note i don't want to be friends with you if you are a: </br>
-proshipper, queer exclus, radqueer ("transid"), pro-para (**harmful** ones). interactions ok but please limit them. </br>
-also if your main interest/fandom is any of these please iwc: dandys world, genshin, helluva/hazbin, dream smp
-
 i usually have my other accounts linked to my ponies, these being [@mewgenics](https://github.com/mewgenics) or [@deathcert](https://github.com/deathcert). </br>
 you will never guess what ponies i usually have them on (my mewge/isaac ponies respectively) </br>
 pony inspiration is okay! just please don't straight up copy them... i don't like it. ok? thanks
