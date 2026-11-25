@@ -1,4 +1,4 @@
-<p align="center"> <a href="https://github.com/renchanting/cains-graphics">graphic collection</a> | <a href="https://github.com/renchanting/cains-interests">my interests</a> </p>
+<p align="center"> <a href="https://github.com/renchanting/cains-graphics">graphics (flash warning)</a> | <a href="https://github.com/renchanting/cains-interests">my interests</a> </p>
 <p align="center">
   <img src="https://64.media.tumblr.com/37b9300bf0786538ad8f2842089e6cdf/d83a7de606c7f5f9-47/s1280x1920/5d83ae7288d0067956db30f416eda73cd424bb64.png"> 
   <img src="https://64.media.tumblr.com/79bee4f0217d18961615f8a5be8946a5/d4b7ddb697031c86-51/s1280x1920/cef9b912bbfda225c3883e0957bb36d4696a8bd1.png"> 
